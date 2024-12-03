@@ -66,11 +66,11 @@ ______________________________________
 ╚════════════════════════╝
 ╔═════◇
 ║  『••• 𝗩𝗶𝘀𝗶𝘁 𝗙𝗼𝗿 𝗛𝗲𝗹𝗽 •••』
-║❒ *Ytube:* _youtube.com/@wasitech1_
+║❒ *Ytube:* - 
 ║❒ *Owner:* _https://wa.me/27710200228 or  https://wa.me/27634624586_
 ║❒ *Repo:* _https://github.com/Orangefri/TSUKUYOMI-MD/tree/main_
 ║❒ *WaGroup:* _https://chat.whatsapp.com/CicqD04sNCJ37j13LiI51p_
-║❒ *WaChannel:* _https://whatsapp.com/channel/0029VaDK8ZUDjiOhwFS1cP2j_
+║❒ *WaChannel:* - 
 ║
 ╚════════════════════════╝
 _____________________________________
