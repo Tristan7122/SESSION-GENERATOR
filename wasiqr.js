@@ -70,7 +70,7 @@ ______________________________________
 ║  『••• 𝗩𝗶𝘀𝗶𝘁 𝗙𝗼𝗿 𝗛𝗲𝗹𝗽 •••』
 ║
 ║❒ *Owner:* _wa.me/27710200228, wa.me/27634624586
-║❒ *Repo:* _https://github.com/Orangefri/TSUKUYOMI-MD/tree/main
+║❒ *Repo:* _https://replit.com/@jerry712233/Queen-Elisa-MD_
 ║❒ *WaGroup:* _https://chat.whatsapp.com/CicqD04sNCJ37j13LiI51p
 ║❒ *WaChannel:* 
 ║ 
